@@ -172,5 +172,5 @@ It is a structured ecosystem built on control, discipline, and advanced cybersec
 Built by aaayafuj.
 
 
-# Simple AI onlione free AI
+# Simple AI onlione free AI.
 * ---> https://miniapps.ai/u/AYFJ-Group
